@@ -1,4 +1,5 @@
 # git practice taught by seokjung
 
-slslslslsldadfaasdfw
-
+slslslslsl dmdmdmdmdm
+nnvnnvnv
+ewww
