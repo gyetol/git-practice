@@ -1,5 +1,5 @@
 # git practice taught by seokjung
 
 slslslslsl dmdmdmdmdm
-nnvnnvnv
+1nnvnnvnv
 ewww
